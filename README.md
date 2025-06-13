@@ -5,7 +5,7 @@ You can reach me on discord(linked). I don't check it often so don't expect an i
 
 Pronouns: He/Him
 
-Fun fact: I live in india and i'm preparing for JEE 2025.
+DTU 29'
 
 <!---
 PratMal/PratMal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
