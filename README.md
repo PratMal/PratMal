@@ -1,6 +1,6 @@
-Hi! I’m Pratyush Malik. I'm 16 and pursuing computer science.
+Hi! I’m Pratyush Malik. pursuing computer science.
 I’m interested in coding(duh), robotics and electronics.
-I’m currently learning Python and C/C++
+I’m currently learning C/C++ and AI/ML
 You can reach me on discord(linked). I don't check it often so don't expect an instant reply.
 
 Pronouns: He/Him
